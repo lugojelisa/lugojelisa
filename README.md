@@ -6,7 +6,7 @@
 💞️ I’m looking to collaborate on data-driven projects in retail, marketing, or any sector where data can make an impact. I’m especially open to projects involving predictive modeling and data visualization.
 📫 How to reach me: lugojelisa@gmail.com or on LinkedIn.
 😄 Pronouns: She/Her
-⚡ Fun fact: I’m a lifelong learner originally from New Mexico, and I’m currently pursuing my BBA in Information Systems and Business Analytics.
+⚡ Fun fact: I’m a lifelong learner originally from New Mexico, and I’m currently pursuing my BBA in Information Systems and Business Analytics with a minor in Marketing Analytics.
 
 
 <!---
